@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Sudhir Satapathy
-**A passionate Data Analyst || Machine learning Enthusiast ||  Generative AI Learner**
+**Data Analyst passionate about Machine Learning, AI, and business-driven analytics solutions.**
 
 Email Me 👉 ✉️ **sudhir.itzme@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
